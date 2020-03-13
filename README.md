@@ -49,6 +49,7 @@
 - 进入工业界
 - 回国做教授
 ~~~
+华五某校 C同学 在UCSD暑研。见面与教授谈及未来展望，表达回国当教授的意愿，有幸碰到学术洁癖的教授，喜提一封黑推。
 ~~~
 
 ## Choose a herd of Program
@@ -60,7 +61,7 @@
 4）
 **Tips**：并不需要确切答案，反而牛角尖。
 
-## Brainstorming & Sympathy
+## Brainstorming & Sympathy 
 一直都有
 
 ## About Networking
